@@ -6,9 +6,10 @@
 ### 关于我
 即使看了也不能多了解我什么😏：  
 
-> 性别：男  
-> 位置：陕西省  
-> 学历：高中在读  
+> 代号：百事雪碧      
+> 姓名：ZhangZitao   
+> 学历：高中在读          
+> 位置：中华人民共和国陕西省   
 > 爱好：~~兴趣广泛~~，浅尝辄止   
 
 ### 作品  
@@ -23,9 +24,9 @@
 
 > 邮箱：justinbally997@gmail.com  
 > 推特：[@zzt000ccc](https://twitter.com/zzt000ccc)   
-> QQ：[1624262875](https://www.teensdream.cn/jump.html?1624262875)
-> bilibili：[百事雪碧Ps](https://space.bilibili.com/85798800)  
-> 网易云音乐：[Mr_PepsiSprite](http://music.163.com/m/user/home?id=1355391697)   
+> QQ：[1624262875](https://www.teensdream.cn/jump.html?1624262875)       
+> bilibili：[百事雪碧Ps](https://space.bilibili.com/85798800)       
+> 网易云音乐：[Mr_PepsiSprite](http://music.163.com/m/user/home?id=1355391697)      
 
 ***
 
