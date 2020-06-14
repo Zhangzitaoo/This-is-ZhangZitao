@@ -25,4 +25,8 @@
 
 ***
 
-感谢MAGNETO[「Teensdream」](https://www.teensdream.cn//)提供的QQJump🙏
+感谢MAGNETO[「Teensdream」](https://www.teensdream.cn//)提供的QQJump🙏    
+
+***
+
+永远纪念[info.cern.ch](info.cern.ch)
