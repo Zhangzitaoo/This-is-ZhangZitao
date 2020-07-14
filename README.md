@@ -20,10 +20,9 @@
 
 > 邮箱：justinbally997@gmail.com  
 > 推特：[@zzt000ccc(已停用)](https://twitter.com/zzt000ccc) [@zztccc000](https://twitter.com/zztccc000)    
-> QQ：[1624262875](https://www.teensdream.cn/jump.html?1624262875)       
+> QQ：[1624262875](https://www.teensdream.club/jump.html?1624262875)       
 
 ***
 
-永远纪念[info.cern.ch](http://info.cern.ch/)✊     
 感谢MAGNETO[「Teensdream」](https://www.teensdream.cn//)提供的QQJump🙏    
 
