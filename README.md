@@ -24,6 +24,6 @@
 
 ***
 
-**永远纪念[info.cern.ch](http://info.cern.ch/)**✊     
+永远纪念[info.cern.ch](http://info.cern.ch/)✊     
 感谢MAGNETO[「Teensdream」](https://www.teensdream.cn//)提供的QQJump🙏    
 
