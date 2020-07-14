@@ -1,5 +1,4 @@
-很高兴你能打开这个页面，如果有兴趣，你可以访问我的[博客](https://desirez.tk)，那里更~~有趣~~👍。  
-如果你是从**「百事本」**的背面发现了链接，你会更想了解[「设计故事」](https://desirez.tk/notebook.html)👏。
+很高兴你能打开这个页面，如果有兴趣，你可以访问我的[博客](https://desirez.tk)，那里更~~有趣~~👍。   
 
 ***  
 
@@ -21,13 +20,11 @@
 
 > 邮箱：justinbally997@gmail.com  
 > 推特：[@zzt000ccc(已停用)](https://twitter.com/zzt000ccc)   
-       [@zztccc000](https://twitter.com/zztccc000)    
+         [@zztccc000](https://twitter.com/zztccc000)    
 > QQ：[1624262875](https://www.teensdream.cn/jump.html?1624262875)       
 
 ***
 
+**永远纪念[info.cern.ch](http://info.cern.ch/)**✊     
 感谢MAGNETO[「Teensdream」](https://www.teensdream.cn//)提供的QQJump🙏    
 
-***
-
-**永远纪念[info.cern.ch](http://info.cern.ch/)**✊
