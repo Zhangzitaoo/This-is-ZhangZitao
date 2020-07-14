@@ -24,5 +24,5 @@
 
 ***
 
-感谢MAGNETO[「Teensdream」](https://www.teensdream.cn//)提供的QQJump🙏    
+感谢[「Teensdream」](https://www.teensdream.club)提供的QQJump🙏    
 
