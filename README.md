@@ -18,8 +18,7 @@
 ### 联系我
 我的多数时间在学校，无法及时回复您的消息，抱歉🤣！
 
-> 邮箱：justinbally997@gmail.com  
-> 推特：[@zzt000ccc(已停用)](https://twitter.com/zzt000ccc) [@zztccc000](https://twitter.com/zztccc000)    
+> 邮箱：justinbally997@gmail.com   
 > QQ：[1624262875](https://www.teensdream.club/jump.html?1624262875)       
 
 ***
